@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @YaeAyano
+- 👀 I’m interested in deep-learning
+- 🌱 I’m currently learning intellengence science and technology
+- 📫 How to reach me ?
+- QQ                    1369474621
+- Wechat                tl1369474621
+- Steam                 402636252
+- Ubisoft/Origin        AC-BlackLotus
+- bilibili uid          10060983
+- Genshin Impact uid    100638365
