@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YaeAyano
+- 👋 Hi, I’m @YaeAyako
 - 👀 I’m interested in deep-learning
 - 🌱 I’m currently learning intellengence science and technology
 - 📫 How to reach me ?
